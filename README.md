@@ -1,0 +1,1 @@
+http://www.leftso.com/blog/382.html
